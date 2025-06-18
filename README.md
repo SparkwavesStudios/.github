@@ -64,7 +64,7 @@ Our developers are specialized in building clean, powerful, and modern plugin sy
 ## 💼 Work With Us
 
 Interested in commissioning a custom solution or joining the studio?  
-Contact us at: **contact@sparkwaves.dev**
+Contact us at: **contact@sparkwaves.xyz**
 
 ---
 
